@@ -1,0 +1,1 @@
+Zmarła matka [[Krathar Kregmane]], uwielbiała spacery po podziemiach miasta, ale z jednej wyprawy już nigdy nie wróciła, popielni tego dopilnowali.

@@ -1,0 +1,1 @@
+Elfi Magowie posiadający nadzwyczajne zdolności.

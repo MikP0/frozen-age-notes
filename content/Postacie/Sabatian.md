@@ -1,0 +1,1 @@
+Mag, należący do [[Czarni Magowie|Czarnych Magów]]. W jakimś stopniu dowodził buntem wśród Magów.

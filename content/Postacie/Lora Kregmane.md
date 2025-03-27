@@ -1,0 +1,1 @@
+Siostra [[Krathar Kregmane]], który miał pewne podejrzenia, że jest uzależniona od Aldyuum, ale nie znalazł na to dowodów. Z zawodu jest kucharką i piecze najlepszy gulasz jaki w życiu ktoś mógł jeść (może dlatego, że dosypywała do niego jakiś dziwny proszek).

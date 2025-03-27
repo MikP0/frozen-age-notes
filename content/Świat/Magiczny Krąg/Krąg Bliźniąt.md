@@ -1,0 +1,1 @@
+[[Magiczny Krąg]] znajdujący się na terenie [[Desara|Królestwa Desary]].

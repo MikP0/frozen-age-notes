@@ -1,0 +1,1 @@
+Wujek [[Krathar Kregmane]], jeszcze prawdopodobnie żyje, ale uciekł z domu bez słowa i śladu po nim nie ma, gadali że maczał palce w magii ale nikt tego już nie rozpamiętuje, bo przecież Krasnoludy nie zajmują się magią. Grimm opowiadał [[Krathar Kregmane]] o starych bogach - [[Dziewiątka]], niedługo potem zniknął z Sgaith

@@ -1,0 +1,1 @@
+Zniszczony Sgaith którego ruiny znajdują się na południowo-zachodnim terenie [[Tuffalun]].

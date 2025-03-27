@@ -1,0 +1,1 @@
+Zmarły książe [[Desara|Królestwa Desary]], zraniony przez [[Sabatian]] jednego z [[Czarni Magowie|Czarnych Magów]]. 

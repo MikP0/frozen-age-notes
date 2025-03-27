@@ -1,0 +1,1 @@
+Przodek [[Krathar Kregmane]]. Założyciel klanu Kregmane. Mówi się, że był jednym z założycieli Sgaith Murnborin. Każdy w klanie wiedział, że był uparty jak osioł. Było nawet powiedzenie w rodzinie "Upary jak stary Kreg". Miał wiele kochanek więc nie do końca wiadomo w końcu która była matką którego jego dziecka.

@@ -1,0 +1,1 @@
+Bardowie pełnią funkcję nie tylko rozrywki dla mas ale również tajnego wywiadu dla swojego Państwa.

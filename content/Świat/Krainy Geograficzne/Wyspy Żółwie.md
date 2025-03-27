@@ -1,0 +1,1 @@
+Mieszkają tam rody kupieckie, które zawiązały z [[Tuffalun]] ligę kupiecką - [[Konfederacja Żółwia]].

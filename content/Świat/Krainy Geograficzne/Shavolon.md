@@ -1,0 +1,1 @@
+Cesarstwo które po najeździe [[Salkithai]] na oraz ataku [[Czarni Magowie]] na [[Desara]], uważa, że pomogło przegonić najeźdźców i w miejsce zmarłego Króla oraz [[Perinet|Księcia Perineta]]

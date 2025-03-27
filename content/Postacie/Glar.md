@@ -1,0 +1,1 @@
+Człowiek, wychowany przez [[Salkithai]] Orela w zasadach Klanu Jutrzenki, wędrowny najemnik

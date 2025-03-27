@@ -1,0 +1,1 @@
+Miejsce pobierania nauk przez Magów w świecie Atinenu. Kręgi magiczne znajdują się na terenie większości Państw. 

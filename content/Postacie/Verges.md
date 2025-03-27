@@ -1,0 +1,1 @@
+Człowiek, wyszkolona w Klasztorze Błękitnego Lodu na Strażniczkę Grobowców, wywalczyła w trakcie Sądu Rady pozycję Kagana Klanów [[Salkithai]].

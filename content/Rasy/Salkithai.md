@@ -1,0 +1,1 @@
+Lud barbarzyńców z Pólnocy (Mroźne pustkowia) dzielący się na poszczególne klany. 

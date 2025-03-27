@@ -1,0 +1,1 @@
+Minerał wydobywany przez Krasnoludów w [[Sgaith|Sgaith'ach]]. 

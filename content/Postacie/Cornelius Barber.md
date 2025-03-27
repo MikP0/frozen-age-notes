@@ -1,0 +1,1 @@
+Zmarły [[Bardowie|Bard]] [[Ludzie|Człowiek]] zabity przez [[Drann|Drann'a]] - członka [[Drużyna|drużyny]] z którą podróżował.

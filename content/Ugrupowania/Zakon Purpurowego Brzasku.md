@@ -1,0 +1,1 @@
+Jest zbrojnym ramieniem Oryatyzjańskiego [[Kościół Stwórcy|Kościoła Stwórcy]] i powstał w czasach Drugiej Pożogi z rycerzy, którzy dobrowolnie spożywali [[Aldyuum]] by się wzmocnić do walki z Popielnymi, jednocześnie godząc się, że w dłuższej perspektywie to [[Aldyuum]] ich zabije. Należą do niego raczej konserwatywni wyznawcy [[Stwórca]]
