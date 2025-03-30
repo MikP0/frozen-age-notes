@@ -1,0 +1,1 @@
+Członek [[Rada Regencyjna Desary|Rady Regencyjnej]]; najwyższy rangą mag lojalista w czasie Rebelii Magów; w czasie Rebelii Magów odpowiadał za hamowanie rozprzestrzeniania się czarnej rany u króla [[Adlard Oweyn|Adlarda Oweyna]];

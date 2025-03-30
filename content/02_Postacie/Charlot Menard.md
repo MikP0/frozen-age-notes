@@ -1,0 +1,1 @@
+Członkini [[Rada Regencyjna Desary|Rady Regencyjnej Desary]]; najwyższa rangą Mówczyni w Desarze po śmierci wszystkich trzech Prezbiterów; przed wybuchem Rebelii Magów była przełożoną Mówczyń dbających o siedzibę Prezbiterów w Theradas.

@@ -1,0 +1,1 @@
+tzw. Czarna Natchniona; głowa Imperialnego Kościoła Pagonu (Ecclesia Imperialis Pagon); według [[Kościół Stwórcy|Kościoła Stwórcy]] określana również mianem Antynatchnionej; zasiada w Katedrze Imperialnej w stolicy [[Imperium Pagonu]], Arelait.

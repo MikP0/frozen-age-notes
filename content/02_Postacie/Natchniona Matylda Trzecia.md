@@ -1,0 +1,1 @@
+Głowa [[Kościół Stwórcy|Kościoła Stwórcy]]; formalnie piastuje stanowisko Najwyższego Prezbitera Kongregacji Mówców; zasiada w Katedrze Stwórcy w stolicy [[Shavolon|Cesarstwa Shavolon]], Mavaleix.

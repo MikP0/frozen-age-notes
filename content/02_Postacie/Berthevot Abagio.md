@@ -1,0 +1,1 @@
+Przedstawiciel Cesarza Caspara Pierwszego na dworze w Desarze; gość [[Rada Regencyjna Desary|Rady Regencyjnej]]; przedstawił na obradach ostatniej Rady Regencyjnej warunek ustanowienia Regenta Desary wyznaczonego przez Cesarza Shavolon w ramach za pomoc militarną w odzyskaniu stolicy i zakończenia najazdu barbarzyńców

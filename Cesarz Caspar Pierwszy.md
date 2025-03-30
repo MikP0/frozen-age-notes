@@ -1,0 +1,1 @@
+Władca [[Shavolon|Cesarstwa Shavolon]]; obecnie sprawujący pieczę nad królową królestwa Desary - [[Leona Oweyn|Leoną Oweyn]]; na prośbę [[Rada Regencyjna Desary|Rady Regencyjnej Desary]] zgodził się wyznaczyć tymczasowo regenta, sprawującego rządy w Desarze po jej spustoszeniu przez Rebelię Magów oraz hordę barbarzyńców z północy.

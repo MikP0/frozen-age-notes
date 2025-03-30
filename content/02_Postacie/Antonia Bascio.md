@@ -1,0 +1,1 @@
+Bardka; członkini Wywiadu Królewskiego Desary; pomagająca Jean-Pierowi Astierowi - konstablowi z nadania Regenta Peletiera; podająca się za tajną członkinię rojalistów spiskujących przeciw regencji desarskiej; zamordowana, podobnie jak konstabl, przez [[Cornelius Barber|Corneliusa Barbera]].

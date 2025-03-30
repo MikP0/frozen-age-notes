@@ -1,0 +1,1 @@
+Magini [[Krąg Bliźniąt|Kręgu Bliźniąt]] Desary; jedna z nauczycielek magii [[Nera|Nery]] i [[Alven|Alvena]].

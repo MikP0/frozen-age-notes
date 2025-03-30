@@ -1,0 +1,1 @@
+Kanclerz Kręgu Desary, przywódca Paladynów sprawujących straż nad magami [[Krąg Bliźniąt|Kręgu Bliźniąt]] po rekomendacji Arcymaga Kręgu Bliźniąt Marceleta, wydał dekret zwalniający Nerę oraz Alvena na 12 miesięcy z pobytu w Wieży Kręgu; od czasu wybuchu Rebelii Magów i zawalenia się Wieży Kręgu uznawany za poległego.
