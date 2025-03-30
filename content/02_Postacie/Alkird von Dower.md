@@ -1,0 +1,1 @@
+Elf z Pagonu; brat bliźniak Miriam von Dower; wykonuje zadanie powierzone rodzeństwu przez Proroka; uratował Nerę, Alvena i Dranna przed oszalałym krasnoludzkim berserkerem w opuszczonym sgaithie Murlodahr.

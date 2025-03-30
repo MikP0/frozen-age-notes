@@ -1,1 +1,1 @@
-Mag, należący do [[Czarni Magowie|Czarnych Magów]]. W jakimś stopniu dowodził buntem wśród Magów.
+[[Czarni Magowie|Czarny Mag]] Szkoły Pagońskiej; pracujący na rzecz Imperium Pagonu; opracował i koordynował plan wybuchu Rebelii Magów, która pozwoliłaby mu uzyskać dostęp do skarbów królestwa [[Desara|Desary]]; w dniu upadku Rebelii Magów zdobył w skarbcu królewskim niewiadomy przedmiot, po czym zniknął bez śladu.

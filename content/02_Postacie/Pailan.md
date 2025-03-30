@@ -1,0 +1,1 @@
+Apostata Kręgu Bliźniąt; uczeń [[Czarni Magowie|Czarnego Maga]] [[Sabatian|Sabatiana]]; prowadził intrygi dworskie, przekupstwa oraz wymuszenia, które pozwoliły postawić podstawę pod wybuch Rebelii Magów w [[Desara|Desarze]]; zginął z rąk własnego mistrza w dniu upadku Rebelii Magów, w czasie walk w zamku królewskim w Theradas.

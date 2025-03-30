@@ -1,1 +1,1 @@
-Człowiek, wychowany przez [[Salkithai]] Orela w zasadach Klanu Jutrzenki, wędrowny najemnik
+Człowiek, wojownik z klanu Jutrzenki; wzięty do niewoli po wymordowaniu przez [[Salkithai]] jego rodzinnej wioski. Ma 3 lata młodszą siotrę[[Verges | Vergilię (Verges)]]. Glar został wykupiony i wychowany przez Salkhitai’a Klanu Jutrzenki - Orela; nieświadomie uczestniczył w spisku magów renegatów, wyprowadzając[[Perinnet Oweyn| Perinneta Oweyna]], syna króla[[Desara | Desary]] poza zasięg tropiącego porywaczy pościgu; przysiągł na swój honor, że uwolni księcia.

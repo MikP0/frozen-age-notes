@@ -1,1 +1,2 @@
-Mieszkają tam rody kupieckie, które zawiązały z [[Tuffalun]] ligę kupiecką - [[Konfederacja Żółwia]].
+
+Wyspy należące do [[Ugashi]], którzy po[[IV Pożoga | Czwartej Pożodze]] na mocy traktatu pokojowego przywłaszczyli ten teren. Na terenie Wysp Żółwich żyją Ugashi wraz z ich niewolnikami. Ugashi zobowiązani są do poszanowania praw zniewolonych mieszkańców Żółwich Wysp.

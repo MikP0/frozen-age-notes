@@ -1,0 +1,1 @@
+Postać sędziwego elfa z długą brodą; ujawniający się w snach/wizjach; chce uchronić świat przed rozpadem, niwecząc plany Upadłych; korzysta w pomocy bliźniąt Nery i Alvena oraz Miriam i Alkirda; to on ujawnił, że cała czwórka jest rodzeństwem.
