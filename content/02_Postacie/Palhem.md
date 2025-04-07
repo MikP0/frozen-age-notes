@@ -1,0 +1,1 @@
+[[Śniący]]; Elf z klanu Zmierzchu, który dzięki patronatowi Cesarza Shavolon, Adalgisa Pierwszego, wyruszył w ekspedycji do ruin antycznego elfiego miasta Menny, gdzie sprzymierzył się ze skrytym tam żmijem Jawrytem i otworzył mu szczelinę do Otchłani, po czym został zabity w walce z Bratem Mścicielem Marcusem Asellio.

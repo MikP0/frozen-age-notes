@@ -1,0 +1,1 @@
+Elf z Klanu Ciaradh (Zmierzchu); wysłany przez Starszego Klanu - Sarnaquana, aby pokrzyżować plany [[Miriam von Dower|Miriam]] i [[Alkird von Dower|Alkirda]] von Dower i uniemożliwić im zdobycie kolejnego fragmentu Klejnotu Świata, co przybliża koniec świata; poległ w czasie walk w zamku królewskim w Theradas w dniu upadku Rebelii Magów.

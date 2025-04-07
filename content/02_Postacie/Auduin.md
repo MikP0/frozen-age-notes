@@ -1,0 +1,3 @@
+Sędziwy mag, kronikarz; poszukiwacz wiedzy, który uzyskał w [[Krąg Bliźniąt|Kręgu Bliźniąt]] pozwolenie na przebywanie poza Wieżą Kręgu bezterminowo; pod warunkiem odosobnienia w obłożonej glifami strażniczymi wieży samotni w Oberfurcie; był przekonywany do przejścia na stronę zbuntowanych magów przed tzw. Rebelią Magów, ale pozostał lojalistą; miał siostrę Emelot; został śmiertelnie ranny czarną magią w czasie ataku Czarnych Magów na jego wieżę samotnię
+ 
+Wręczył bliźniętom Nerze i Alvenowi księgę z historią ekspedycji Palhema do ruin Menny a dla Corneliusa zaczarował magiczny Sztyflet; w wizji poprosił Corneliusa by ten uratował jego [[Emelot|siostrę]] od losu zatracenia duszy czarnej magii.

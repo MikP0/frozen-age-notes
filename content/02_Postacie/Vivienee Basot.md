@@ -1,0 +1,1 @@
+[[Shavolon|Shavolonka]], nowa Naczelnik Królewskiego Wywiadu Desary; mianowana przez [[Garivald Peletier|Regenta Peletiera]].

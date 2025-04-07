@@ -1,0 +1,1 @@
+[[Shavolon|Shavolończyk]]; nowy Naczelnik Archiwum Porządku Desary; wybrany przez Regenta Peletiera.

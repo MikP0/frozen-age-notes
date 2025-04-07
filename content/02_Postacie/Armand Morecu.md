@@ -1,0 +1,1 @@
+[[Shavolon|Shavolończyk]], nowy Lord Kanclerz Zakonu Purpurowego Brzasku Desary, mianowany przez Regenta Garibalda Peletiera.

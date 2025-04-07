@@ -1,0 +1,1 @@
+Łotrzyca, która przyprowadziła Nerę, Alvena i Dranna do leśnego obozowiska uciekinierów z Oberfurtu i Baltmond; zginęła w czasie walk o wieś Baltmond z rąk Salkhitai Klanu Lawiny.

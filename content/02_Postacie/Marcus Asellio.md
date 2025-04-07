@@ -1,0 +1,1 @@
+Brat Mściciel Zakonu Purpurowego Brzasku [[Shavolon|Cesarstwa Shavolon]]; formalny przywódca ekspedycji do ruin antycznego elfiego miasta Menny w 381 roku Wieku Burz; w czasie ekspedycji nadzorca elfiego Śniącego Palhema, który w czasie ataku żmija Javryta zdradził i umożliwił żmijowi przejście przez szczelinę w Zasłonie do Otchłani; w pojedynku pokonał i zabił Śniącego Palhema.

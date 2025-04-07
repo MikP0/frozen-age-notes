@@ -1,0 +1,1 @@
+Demon z Otchłani, który próbował zawładnąć mocą włóczni Mroźnego Wiatru, pozostał w Otchłani, kiedy Nera wyrwała z niej ducha Dranna.

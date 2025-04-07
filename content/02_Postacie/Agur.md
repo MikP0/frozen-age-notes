@@ -1,0 +1,1 @@
+Jedyny [[Czarni Magowie|Czarny Mag]] ocalały z grupy prowadzącej pojmanego księcia Perinneta Oweyna do Theradas w ręce Czarnego Maga Sabatiana; zginął w czasie walk w zamku królewskim w Theradas w dniu upadku Rebelii Magów.

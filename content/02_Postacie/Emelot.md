@@ -1,0 +1,1 @@
+Siostra [[Auduin|Auduina]]; zwerbowana przez magów rebeliantów; w dniu upadku Rebelii Magów stanęła przeciwko Czarnemu Magowi Pailamowi, chroniąc księcia Perinneta Oweyna i uniemożliwiając mu otwarcie królewskiego skarbca; poległa w walce z [[Pailan|Pailanem]].

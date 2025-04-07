@@ -1,0 +1,1 @@
+Władca [[Imperium Pagonu]]; najwyższy z Collegium Imperiale Pagon; zasiada w Pałacu Zmierzchu (Vespera Palatium) w stolicy Pagonu, Arelait.

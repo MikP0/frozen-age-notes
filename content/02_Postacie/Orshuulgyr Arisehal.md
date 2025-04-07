@@ -1,0 +1,1 @@
+Strażnik Grobowców nadzorujący Klan Lawiny w czasie ich podbojów Ordii; zmierzył się z Corneliusem, Nerą i Alvenem na obrzeżach Oberfurtu; został skrytobójczo zabity przez Armina Ebnera.

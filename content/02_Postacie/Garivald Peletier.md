@@ -1,0 +1,1 @@
+[[Shavolon|Shavolończyk]]; Regent Królestwa Desary. Wnuk Marqueta Peletiera, marszałka cesarstwa Shavolon z czasów porażki cesarstwa nad Potokiem Groton, zakończonej proklamacją królestwa Desary przez Thibaulta Oweyna 

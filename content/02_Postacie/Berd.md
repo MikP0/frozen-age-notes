@@ -1,0 +1,1 @@
+Jeden z pierwotnych przywódców uchodźców z Oberfurtu i Baltmond; obecnie przywódca w Baltmond; brat [[Aveno]].

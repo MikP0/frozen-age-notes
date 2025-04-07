@@ -1,0 +1,1 @@
+[[Bardowie|Bard]]; absolwent Akademii Bardów w Desarze; członek Królewskiego Wywiadu Desary; dostarczył raport Radzie Regencyjnej ze znaczenia Kryształów Aldyuum sprawdzonych na południe przez Ordię barbarzyńców

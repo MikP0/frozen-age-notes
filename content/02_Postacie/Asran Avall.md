@@ -1,0 +1,1 @@
+Wódz Klanu Lawiny; okupował Oberfurt w czasie najazdu hordy barbarzyńców na południe; wykonywał polecenia Orshuulgyra Arisehala

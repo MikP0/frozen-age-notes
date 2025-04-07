@@ -1,0 +1,1 @@
+Elf z Klanu Ciaradh (Zmierzchu); wysłany przez Starszego Klanu - Sarnaquana, aby pokrzyżować plany [[Miriam von Dower]] i [[Alkird von Dower]] i uniemożliwić im zdobycie kolejnego fragmentu Klejnotu Świata, co przybliża koniec świata.

@@ -1,0 +1,1 @@
+Syn Arma Tonelliera; członek rodu Tonellier, który spiskował razem z czarnymi magami w celu obalenia króla i rozpoczęcia rebelii w królestwie; zginął w czasie walk w zamku królewskim w Theradas w dniu upadku Rebelii Magów.

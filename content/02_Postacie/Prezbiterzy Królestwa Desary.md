@@ -1,0 +1,1 @@
+Vanni Duchamp Chari Montarl oraz Muriellis Chabert - cała trójka zginęła w trakcie wybuchu Rebelii Magów; od czasu Regencji w Desarze, na stanowiska nowych Prezbiterów, przez [[Natchniona Matylda Trzecia|Natchnioną Matyldę Trzecią]], wybrani zostali: Ramnulf Levasseur, Leuekin Dutertre i Rainilda Poussin.

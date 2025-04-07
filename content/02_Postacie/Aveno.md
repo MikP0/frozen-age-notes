@@ -1,0 +1,1 @@
+Jeden z pierwotnych przywódców uchodźców z Oberfurtu i Baltmond; brat [[Berd|Berda]]; zginęła w czasie walk o wieś Baltmond z rąk Salkhitai Klanu Lawiny.
