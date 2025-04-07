@@ -1,0 +1,1 @@
+Woźnica, znajomy [[Daniryl]]. Zaoferował pomoc [[Drużyna|Drużynie]] żeby dostać się do Redtorg.

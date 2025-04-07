@@ -1,1 +1,3 @@
-Członek Rady Regencyjnej Desary w czasie [[Rebelia Magów|Rebelii Magów]]; nowy Naczelnik Królewskiego Wywiadu Desary, który zrzekł się tego stanowiska i opuścił [[Theradas]]; świadek zadania śmiertelnej rany [[Desan Vepenero|Desanowi Vepenero]]; jedyny przeciwnik nadania regencji królestwu Desary w czasie ostatnich obrad Rady Regencyjnej w dniu 31 marca 439 roku Wieku Lodu.
+Członek Rady Regencyjnej Desary w czasie [[Rebelia Magów|Rebelii Magów]]; nowy Naczelnik Królewskiego Wywiadu Desary, który zrzekł się tego stanowiska i opuścił [[Theradas]]; świadek zadania śmiertelnej rany [[Desan Vepenero|Desanowi Vepenero]]; jedyny przeciwnik nadania regencji królestwu Desary w czasie ostatnich obrad Rady Regencyjnej w dniu 31 marca 439 roku Wieku Lodu. 
+
+W Redtorg zwą go "Jeżyk".

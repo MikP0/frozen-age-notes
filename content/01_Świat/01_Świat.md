@@ -8,6 +8,7 @@ maxZoom: 2
 defaultZoom: -1.5
 lat: 50
 long: 50
+marker: default,-612,1536,Theradas,,,
 ```
 
 Świat Królestw Atinen'u. W skład mocarstw panujących wchodzą:
